@@ -17,6 +17,7 @@ I'm **Saznina Nazrin Upoma**, a passionate **web designer and developer** aspiri
 ### ⚡ Fun Facts:  
 - 🎂 My birthday is on **13th December**.  
 - 🌏 I love exploring international opportunities, especially in **China,Japan,South korea**.  
-- 👨‍👩‍👧‍👦 I'm a proud aunt to a lovely three nephews.
+- 👨‍👩‍👧‍👦 I'm a proud aunt to lovely three nephews.
+
 Thanks for stopping by! 😊
 
