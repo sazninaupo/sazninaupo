@@ -12,7 +12,8 @@ I'm **Saznina Nazrin Upoma**, a passionate **web designer and developer** aspiri
 
 ### 📫 How to reach me:  
 - Facebook:  
-- Email: [saznina21@gmail.com] 
+- Email: [saznina21@gmail.com]
+- https://bento.me/saznina
 
 ### ⚡ Fun Facts:  
 - 🎂 My birthday is on **13th December**.  
