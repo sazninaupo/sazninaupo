@@ -7,8 +7,7 @@ I'm **Saznina Nazrin Upoma**, a passionate **web designer and developer** aspiri
 - 📖 I'm currently learning **full-stack web development**, focusing on **front-end technologies**.
 - 🤝 I'm looking to collaborate on **open-source web design and development projects**.
 
-### 📫 How to reach me:  
-- Facebook:  
+### 📫 How to reach me:   
 - Email: [saznina21@gmail.com]
 - https://bento.me/saznina
 
